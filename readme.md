@@ -1,1 +1,2 @@
-Vajsar Martin
+Vajsar Martin  
+Hodnocení: V pořádku  
